@@ -1,2 +1,2 @@
 ## Resume
-📄 [Download My Resume](https://github.com/Muditmayank1/Resume/blob/main/RESUME%20M.pdf)
+📄 [Download My Resume](https://drive.google.com/file/d/14XCIy5_NzxTd0nV-Ek4iyKPuHJa7Z9Kn/view?usp=sharing)
